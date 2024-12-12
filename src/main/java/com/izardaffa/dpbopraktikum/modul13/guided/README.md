@@ -1,0 +1,1 @@
+# Kode dari asprak atau JT
